@@ -1,4 +1,4 @@
-
+automatic Script for aura ascension is the best aura ascension Script, featuring unlimited stamina and fly. Safe and powerful for all your needs.
 
 
 
